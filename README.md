@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... idk hit me :D
 - 📫 tamayori993@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I'm no fun at all...
+- ⚡ Fun fact: I'm no fun at all... 😏
 
 <!---
 Agata93/Agata93 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
